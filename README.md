@@ -1,0 +1,2 @@
+# SEO
+Information on SEO
